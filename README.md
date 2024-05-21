@@ -1,2 +1,3 @@
 # Mimicking-Hand
-https://www.youtube.com/embed/JIw2QIPxSoE?si=x3WuNBpQ2ygcvk7J
+https://youtu.be/JIw2QIPxSoE?feature=shared
+https://youtu.be/qu6y5z1MBu8?feature=shared
